@@ -1,0 +1,3 @@
+- Hi, I’m @SurveyMan-AdMe
+- Reach me via my email: Sirswordthefirst@gmail.com
+- I ususaly just use this account for like sharing files and stuff. But I made it cuz i need a github acc for jsbin lol
